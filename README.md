@@ -1,5 +1,5 @@
 # Announcement-Repository
-My First Projeect🚀.<br>
+My First Project🚀.<br>
 Hi,Akash here,hope you are doing well.
 
 🌐 My Web Dev Journey Begins 🚀<br>
